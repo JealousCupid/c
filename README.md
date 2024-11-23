@@ -51,6 +51,7 @@ mwah mwah pokie
 
 Our friendshio is so strong rthat we are platonic partners now and i lov being with you <3
 
+![me falling in water](https://github.com/user-attachments/assets/c8b78250-c255-4740-a35e-eb1ffbdab49a)
 
 
 ![](https://64.media.tumblr.com/3444cafa4802da5bf04c5af31d45a455/deeaef5c00f7cd59-dc/s2048x3072/c0acea55eac103bd7ff2240f7692d7e7bd2ec9f0.pnj)
