@@ -1,7 +1,10 @@
 
 ![](https://64.media.tumblr.com/80840977d510dd8b70c2e28ed028bee5/deeaef5c00f7cd59-d9/s2048x3072/2153810b821fd041b0108bdbfb1e4a1fec1567eb.pnj)
 ![](https://64.media.tumblr.com/26472634b1ab2ea3738dca2150a6a91a/deeaef5c00f7cd59-b6/s2048x3072/8e8ba775a65c8249551bb04f0c928b41d9ae9054.pnj)
-Rai ilysm ![](https://64.media.tumblr.com/a97ab35317105eb71d67210ac267924b/291b57fc1bf1e0d5-80/s75x75_c1/0211031662745fcc51d8a4a59c2cd361f2e82af6.gifv) ![](https://gifcity.carrd.co/assets/images/gallery88/f87b272a.gif?v=47652796) 🪐
+Rai ilysm ![](https://64.media.tumblr.com/a97ab35317105eb71d67210ac267924b/291b57fc1bf1e0d5-80/s75x75_c1/0211031662745fcc51d8a4a59c2cd361f2e82af6.gifv) ![](https://gifcity.carrd.co/assets/images/gallery88/f87b272a.gif?v=47652796) 🪐                                
+🇬🇷❤️🇸🇦
+***
+I dont know if you are dead right now but... Im going to miss you a lot. I've been feeling so numb ever since you were gone. Our love will always be written on the contellations. I wish i could tell you how much i love you for one last time. I wish i was with you on your probably last moments. Im just hoping that you are alive somewhere out there. Healing.
 ***
 We first met because of solarballs after you came back from your hiatus. We met in pt in the sb area and met other people while we had a few mutual discord servers. 
 We met awful people and got ourselves in a gang full of weirdos. They didnt treat us nicelly at all, despite all the struggles, our friendship remained strong and healthy 
