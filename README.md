@@ -4,7 +4,7 @@
 Rai ilysm ![](https://64.media.tumblr.com/a97ab35317105eb71d67210ac267924b/291b57fc1bf1e0d5-80/s75x75_c1/0211031662745fcc51d8a4a59c2cd361f2e82af6.gifv) ![](https://gifcity.carrd.co/assets/images/gallery88/f87b272a.gif?v=47652796) 🪐                                
 🇬🇷❤️🇸🇦
 ***
-I dont know if you are dead right now but... Im going to miss you a lot. I've been feeling so numb ever since you were gone. Our love will always be written on the contellations. I wish i could tell you how much i love you for one last time. I wish i was with you on your probably last moments. Im just hoping that you are alive somewhere out there. Healing.
+Our love will always be written on the contellations.
 ***
 We first met because of solarballs after you came back from your hiatus. We met in pt in the sb area and met other people while we had a few mutual discord servers. 
 We met awful people and got ourselves in a gang full of weirdos. They didnt treat us nicelly at all, despite all the struggles, our friendship remained strong and healthy 
